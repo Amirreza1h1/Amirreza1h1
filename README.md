@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on machine Learning
 - 📫 How to reach me on telegram and whatsapp id=@Amirreza1h1
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact about me: some times night owl and some times early bird!
+- ⚡ Fun fact about me: some times night owl and some times early bird! a codholic!
 
 <!---
 Amirreza1h1/Amirreza1h1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
