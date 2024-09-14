@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning French and PyroSim
 - 💞️ I’m looking to collaborate on machine Learning
 - 📫 How to reach me on telegram and whatsapp id=@Amirreza1h1
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact about me: some times night owl and some times early bird! a codholic!
 
 <!---
